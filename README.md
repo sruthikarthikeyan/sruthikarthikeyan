@@ -2,7 +2,7 @@
 - 👀 I’m interested in Human resource 
 - 🌱 I’m currently learning People analytics 
 - 💞️ I’m looking to collaborate on Hiring and Recruiting process
-- 📫 How to reach me - SruthiKarthikeyan@gmail.com
+- 📫 How to reach me - SruthiKarthikeyanslm@gmail.com
 
 <!---
 sruthikarthikeyan/sruthikarthikeyan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
