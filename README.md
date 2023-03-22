@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sruthikarthikeyan
 - 👀 I’m interested in Human resource 
-- 🌱 I’m currently learning People analytics 
+- 🌱 I've done Talent Acquisition certification at Cornell university 
 - 💞️ I’m looking to collaborate on Hiring and Recruiting process
 - 📫 How to reach me - SruthiKarthikeyanslm@gmail.com
 
